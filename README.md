@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @KandiceLynne
+- 👋 Hi, I’m Kandice
 - 👀 I’m interested in all things automation
 - 🌱 I'm currently trying to figure out what I want to be when I grow up!
 - 💞️ I’m looking to collaborate on anything fun and cutting edge
